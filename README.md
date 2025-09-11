@@ -22,9 +22,11 @@
 
 [[Knife]] 
 
-[[Piggy’s glasses]] 
+[[Piggy's Glasses]]
 
 [[The Scar]] 
+
+[[Beast]]
 
  
 
