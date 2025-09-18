@@ -1,1 +1,1 @@
-Simon represents Jesus
+Simon represents pure goodness (page 71)
