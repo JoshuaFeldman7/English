@@ -8,3 +8,5 @@ but by chapter 3 he is already turning more and more savage "...except for a pai
 
 On pages 64-65 [[Jack]] and [[Ralph]] are arguing over what has higher priority, [[hunting]] or building a [[shelter]]. On pages 68-69 they give up the big argument and move on to a more productive conversation "baffled, in love and hate". This also reminds us they are just children.
 
+The little kids represent [[society]] as a whole.
+
